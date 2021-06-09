@@ -1,1 +1,1 @@
-# MyRecipes
+# Snacks
